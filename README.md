@@ -1,0 +1,1 @@
+# Ten Different Spinner 🌄📊🎡
